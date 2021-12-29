@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fr0glady
+- 📫 How to reach me: @froglady#8786 on Discord
